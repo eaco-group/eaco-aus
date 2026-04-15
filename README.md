@@ -1,6 +1,9 @@
 # eaco-aus
 Australia EACO Group 
 
+<img width="1333" height="895" alt="Australia EACO Group 202601 image" src="https://github.com/user-attachments/assets/112be37a-a63b-4f1f-801a-ff4469ad5396" />
+
+
 Earth's Best Coin — The Global Replicable Model
 
 <img width="1074" height="842" alt="eaco australia 1image" src="https://github.com/user-attachments/assets/3329bdcd-58af-4097-aed4-2a05da79d7f5" />
